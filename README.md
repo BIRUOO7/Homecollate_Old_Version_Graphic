@@ -1,1 +1,0 @@
-# Homecollate_graphic
